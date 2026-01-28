@@ -1,4 +1,4 @@
-# Hi, my name is Burbu 👋
+# Hi, my name is burbuu
 I'm Iris (they / she) and I' m a Game Developer.
 
 
